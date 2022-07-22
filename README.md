@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Sazidocj
 - 👀 I’m interested in coding
-- 🌱 I currently have noexperience what so ever
+- 🌱 I currently have no experience what so ever
